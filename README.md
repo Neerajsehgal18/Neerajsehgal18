@@ -1,1 +1,1 @@
-### Hi there, I'm  [Neeraj SehgaL]
+Hi there, I'm  Neeraj SehgaL
